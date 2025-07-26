@@ -4,13 +4,13 @@ Testing out my poster pirating skills (and posting them here)...
 
 please dont sue me im just a young lad
 
+## _I believe that every good chap should have access to some free sick posters - LazerKat, 2025_
+
 # The posters in question
 
 #### _Murder Drones Poster_
 
 <img width="130" height="200" alt="md" src="https://github.com/user-attachments/assets/cbe5cf84-1cce-4144-bd3e-803f8a6584f1" />   [**Download in HD!**](https://drive.google.com/uc?export=download\&id=1Y3Kl8sWDfA4iL51cAiNyVAfYZ4N2NH3Y)
-
-# The posters in question
 
 #### _The Amazing Digital Circus Poster_
 
